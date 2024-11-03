@@ -1,4 +1,4 @@
 - 👋 Hola soy Blanca
-- 👀 Estoy interesada en IA y pensamientos critico
+- 👀 Estoy interesada en IA y pensamientos crítico
   
 
