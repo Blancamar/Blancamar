@@ -1,5 +1,4 @@
-
-<img src="FOTO PERFIL BFMG.png"›
+<img src="foto1.png"›
 
 
 
